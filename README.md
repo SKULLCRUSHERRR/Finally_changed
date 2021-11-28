@@ -1,0 +1,2 @@
+# STRASHGAYLIGHT
+fkin gay blyat
